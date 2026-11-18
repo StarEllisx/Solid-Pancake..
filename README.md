@@ -7,3 +7,4 @@ i am really friendlyy! if i see u hangout with me a lot id always be by yourside
 
 MY DISCORD ACC FEEL FREE TO MESSAGE! :3 User: star.yourbestie
  ask for more def ya <33
+<img width="2048" height="2048" alt="36cf1521-1189-4c3b-a824-92929e795f89" src="https://github.com/user-attachments/assets/86704bb6-d90c-4fb1-9fb2-58945dfa6f49" />
